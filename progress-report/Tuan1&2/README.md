@@ -1,1 +1,1 @@
-
+Tìm hiểu lý thuyết
