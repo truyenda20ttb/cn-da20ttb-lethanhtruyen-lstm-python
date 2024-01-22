@@ -1,1 +1,0 @@
-Tìm hiểu lý thuyết
